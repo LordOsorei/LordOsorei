@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @LordOsorei
+- 👋 Hi, I’m @Ethan
 - 👀 I’m interested in crepes
 - 🌱 I’m currently learning crepes
 - 💞️ I’m looking to collaborate on crepes
